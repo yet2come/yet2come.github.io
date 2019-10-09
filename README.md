@@ -2,7 +2,8 @@
 
 ---
   Internet Week 2019  
-  [浅草橋ヒューリックホール＆カンファレンス](http://www.hulic-hall.com/) 
+  [浅草橋ヒューリックホール＆カンファレンス]<p>
+  (http://www.hulic-hall.com/) 
   11月28日(木)  19:00～20:30  Room3 (最大収容人数:72名)  
   https://www.nic.ad.jp/iw2019/program/all/#28 のB6枠で開催します。  
   BoFへの参加費は無料です。  
